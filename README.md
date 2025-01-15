@@ -33,4 +33,4 @@ Tools: MS Office 365, Git, Slack, Trello
 
 📧 Email: attardenirmal420@@gmail.com
 
-💼 LinkedIn: [Nirmal16091999](https://www.linkedin.com/in/nirmal-attarde/)
+💼 LinkedIn: [Nirmal Attarde](https://www.linkedin.com/in/nirmal-attarde/)
